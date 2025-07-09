@@ -10,4 +10,4 @@
 
 这些优质资源站为用户呈现丰富多样的视频资源，支持多种播放画质选择，满足不同用户需求。每个视频都有详尽的介绍和演员资料，便于用户了解影片内容。平台保证流畅播放，避免卡顿。除了丰富的国产欧美日韩在线观看一区二区三区和亚洲中文字幕www网站资源外，还有大量欧美久久久另类精品作品，持续更新，满足多元化观众需求。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/song20250709/song11 ）</span>
